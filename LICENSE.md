@@ -1,4 +1,4 @@
-# 
+# Experience steal a brainrot like never before with steal a brainrot Scripts secure, the #1 Script. Includes auto-collect and unlimited stamina for
 
 
 
